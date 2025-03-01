@@ -27,7 +27,7 @@ My research interest includes:
 - *2025.03*: &nbsp;🎉🎉  My personal website launched!
 
 # 📝 Publications 
-None.
+
 
 # 🎖 Honors and Awards
 - *2024.10* The National Scholarship. 
